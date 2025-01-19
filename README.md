@@ -4,4 +4,4 @@ https://github.com/user-attachments/files/18468500/IT.excel.majedur.xlsx
 
 https://github.com/user-attachments/files/18468501/IT.specialist.Majedur.docx
 
-https://github.com/user-attachments/files/18468494/it.specialist.ppt.pptx
+https://github.com/user-attachments/files/18468518/IT.specialist.17.ppt.pptx
